@@ -3,7 +3,7 @@
 <h1 align="center">🎑The longest day has an end. 🎑</h1>
 <br>
 <br>
-<h3 align="center">👻Contact: 2607295815@qq.com😛 
+<h3 align="center">👻Contact: No😛 
 <br>
 <br>
 
