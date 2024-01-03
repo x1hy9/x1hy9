@@ -13,8 +13,6 @@
 </div>
 <div align="center">
 💻 Hacking<br>
-💓 Vaporwave<br>
-📸 Taking Pictures<br>
 ✈️ Traveling<br>
 </div>
 
