@@ -3,7 +3,7 @@
 <h1 align="center">🎑The longest day has an end. 🎑</h1>
 <br>
 <br>
-<h3 align="center">👻Contact: No😛 
+<h3 align="center">a23lndlpuwm332*z,cbuej2lKHVT
 <br>
 <br>
 
@@ -14,6 +14,7 @@
 <div align="center">
 💻 Hacking<br>
 ✈️ Traveling<br>
+🏃 homeless<br>
 </div>
 
 <br>
